@@ -11,6 +11,5 @@ anda tidak kebingungan ditengah jalan 😄😀
 bergabunglah disalahsatu komunitas bot.OK 😂
 #======================#
 ## WROKS 100 %
-#DPK BOTS
-#ARIFISTIFIK 
+#thanks buat ARIFISTIFIK 🙏🙏🙏🤝
 # THANKS TO ALL MASTAH
